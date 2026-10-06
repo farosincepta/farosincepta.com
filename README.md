@@ -1,2 +1,2 @@
-# northjaymarketing.com
-Northjay Marketing website
+# farosincepta.com
+Faros Incepta website
